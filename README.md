@@ -1,4 +1,4 @@
-### Hi, I’m Jawahar Nathani @Gamemaster-007 👋 
+### 👋  Hi, I’m Jawahar Nathani @Gamemaster-007
 
 - 🌐 https://gamemaster-007.github.io/myprofile/
 - 🎓 I'm studying in `Indian Institute of Technology Tirupati` BTech, CSE, 3rd Year.
